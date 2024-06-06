@@ -1,1 +1,1 @@
-assalamu'alaikum farros ladskfjasd;lkgasd;l
+assalamu'alaikum farros
